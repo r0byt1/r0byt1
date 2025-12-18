@@ -14,5 +14,5 @@ I'm new in this coding word and I want so learn so much.
 - I have a dog.
 - I enjoy drinking matcha 🍵.
 - Wanda is my favorite character EVER.
-- Hobbies: gaming, films, building things. 
+- Hobbies: gaming, films, acting,  building things. 
 
