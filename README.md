@@ -11,8 +11,8 @@ I'm new in this coding word and I want so learn so much.
 - 😄 Pronouns: He/Him 
 
  ## ⚡ Fun fact
-   - I have a dog.
-   - I enjoy drinking matcha 🍵. 
-  	- Wanda is my favorite character EVER.
-   - Hobbies: gaming, films, building things. 
+ I have a dog.
+ I enjoy drinking matcha 🍵.
+ Wanda is my favorite character EVER.
+ Hobbies: gaming, films, building things. 
 
