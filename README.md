@@ -5,7 +5,7 @@ I'm new in this coding world and I want to learn so much.
 
 ## Here are some ideas to get you started:
 - 🌱 I'm currently learning Python and a bit of HTML.
-- 👯 I’m looking to collaborate on lots of projects.
+- 👯 I’m looking torwardto doing lots of projects.
 - 🤔 I’m looking for help with anyting, really.. 
 - 💬 Ask me about what u want, I'm open to new coding buddys 
 - 😄 Pronouns: He/Him 
