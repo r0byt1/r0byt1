@@ -11,7 +11,7 @@ I'm new in this coding world and I want to learn so much.
 - 😄 Pronouns: He/Him 
 
  ## ⚡ Fun fact
-- I have a dog.
+- I love animals, especially dogs and horses.
 - I enjoy drinking matcha 🍵.
 - Marvel Cinematic Univers lover.
 - Hobbies: gaming, films, acting, music, building things. 
