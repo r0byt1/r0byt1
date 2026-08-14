@@ -13,6 +13,6 @@ I'm new in this coding world and I want to learn so much.
  ## ⚡ Fun fact
 - I have a dog.
 - I enjoy drinking matcha 🍵.
-- My favorite genres are Marvel universe and Avatar ( by James Cameron ), 
-- Hobbies: gaming, films, acting,  building things. 
+- Marvel Cinematic Univers lover.
+- Hobbies: gaming, films, acting, music, building things. 
 
